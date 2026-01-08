@@ -1,1 +1,1 @@
-# University of Auckland -- IT Management
+University of Auckland -- IT Management
