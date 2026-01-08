@@ -1,1 +1,1 @@
-# Kenneth-Thakur
+# University of Auckland -- IT Management
