@@ -1,1 +1,1 @@
-University of Auckland -- IT Management
+Georgia Tech -- Computer Science
